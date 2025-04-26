@@ -53,6 +53,7 @@ Fique à vontade para me chamar:
 
 - 📧 Email: [gustavodarosa2002@gmail.com](mailto:gustavodarosa2002@gmail.com)
 - 🧑‍💻 GitHub: [github.com/gustavodarosa](https://github.com/gustavodarosa)
+- 📱 WhatsApp: [Clique aqui para conversar](https://wa.me/5547997183907)
 
 ---
 
